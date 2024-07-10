@@ -1,4 +1,4 @@
-Cartella con tutto il materiale necessario per scrivere saggi con i saggi completi per contribuire si può:
+Cartella con tutto il materiale necessario per scrivere saggi con i saggi completi. Per contribuire si può:
 
 1) Segnalare bibliografia di potenziale interesse
 2) Revisionare materiale
