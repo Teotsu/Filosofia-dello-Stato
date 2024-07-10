@@ -9,4 +9,4 @@ Chi scrive sarebbe gradito che citasse le fonti e aggiornasse la bibliografia an
 Tengo tutto in ordine qui sopra, così non si disperde il materiale.
 
 Formattazione .docx
-Poi ci penso, mo devo capire come funziona sto coso
+Poi ci penso, mo devo capire come funziona sto coso, faccio un file specifico.
